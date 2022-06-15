@@ -1,3 +1,3 @@
 # practice-repo
-This ia a fun expercise - I like it a lot
+This ia a fun upsIdiditagain - I like it a lot
 I meant exerccise
